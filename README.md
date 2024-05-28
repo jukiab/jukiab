@@ -1,6 +1,6 @@
 ### bem vindos ao meu perfil! 💗
 
-julia barrosn
+julia barros
 
 ### meus contatos  📫
 
